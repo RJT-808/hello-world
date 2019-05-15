@@ -9,4 +9,4 @@ I now move forward in my life focussing on my increased interest for computer so
 
 Here's to a lifetime of learning and to the willingness of being a total n00b in order to eventually get to where you want to be. 
 
-*Que Dramatic Music + Print: Cheese Emoji
+
